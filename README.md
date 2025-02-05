@@ -9,7 +9,7 @@ Here are some ideas to get you started:-->
 <!-- - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ... -->
 - 🌱 I’m currently studying at the Rochester Institute of Technology 🐅
-- 💬 Ask me about my major, my german skills, 4H Competitive Air Rifle, Boy Scouts, or anything really
+- 💬 Ask me about my major, my german skills, 4H Competitive Air Rifle, Boy Scouts, the Congressional Award, Karate, or anything really
 - 📫 How to reach me: email preferred :)
 - 😄 Pronouns: he/him, ally
 - ⚡ Fun fact: I used to look like Harry Potter when I was younger, and I love the mythos of the first three books
